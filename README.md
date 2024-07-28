@@ -1,0 +1,2 @@
+# GachaHeroNo11
+1
